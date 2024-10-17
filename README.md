@@ -1,1 +1,2 @@
 # La-educaci-n-ejecutiva-en-la-era-digital
+La educación ejecutiva está en transformación, impulsada por la digitalización. La inteligencia artificial y tecnologías como la realidad virtual están cambiando cómo los líderes aprenden y se adaptan. En un mundo de constante cambio, el enfoque en agilidad, resiliencia y liderazgo ético se vuelve esencial. Además, el aprendizaje híbrido y permanente garantiza que la formación esté disponible en cualquier momento, promoviendo una evolución continua en la carrera ejecutiva.
